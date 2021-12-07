@@ -4,7 +4,7 @@ And for sure for good reason. I have built Privileged Insider VIP Access for a l
 
 ## Seriously Though I Hope You Impress the Heck Out of Everyone When You Give This To Let Them Use!
 
-[Empowering You to Enable Your Community](http://margaretbock.bamboohr.com)
+[Empowering You to Enable Your Community](http://margaretbock.bamboohr.com){:target="_blank"}
 
 Follow the link above and these credentials below allow you VIP business insider access to see, experience, learn, and feel for yourself just what can grow and some of the nitty grit entailed to plant that seed.
 
