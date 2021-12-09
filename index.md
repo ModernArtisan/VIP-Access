@@ -1,37 +1,19 @@
-## Welcome to GitHub Pages
+## Limited Time Community Manager Insider Access
 
-You can use the [editor on GitHub](https://github.com/ModernArtisan/VIP-Access/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Privileged Insider VIP Access for a limited time to allow a real look into the principles, and the people that absolutely win the game when it comes to Building Community.  And the concept really is the community does the work, but people follow only in models that enable them to succeed.  Natually that means establishing that with a little effort. Que surah surah. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
+## Power Trip Through Community Makers Who Excel
 ```markdown
-Syntax highlighted code block
+privilegedinsider@gmail.com
 
-# Header 1
-## Header 2
-### Header 3
+1Administrator$
 
-- Bulleted
-- List
+1) Copy your login information provided above.
+2) Follow the link to Enable Your Community.
+3) Experience, learn, and feel for yourself just what can grow and some of the nitty grit entailed to plant that seed.
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
+[Empowering You to Enable Your Community](http://margaretbock.bamboohr.com)
 ```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/ModernArtisan/VIP-Access/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Having trouble with Pages? Live Help -> [Help Chat](https://modernedge.online/privacy-policy/) and we’ll help you sort it out.
