@@ -1,11 +1,13 @@
-# Community Manager is the hot buzzword right now
+# Community Manager is a big disruptor right now
 
 And for sure for good reason. I have built Privileged Insider VIP Access for a limited time to allow a real look into the principles, and the people that absolutely win the game when it comes to Building Community.  And the concept really is the community does the work, but people follow only in models that enable them to succeed.  Natually that means establishing that with a little effort. Que surah surah. 
 
-## Seriously Though I Hope You Impress the Heck Out of Everyone When You Give This To Let Them Use!
+## [Visit Here Instead](https://modernedge.online/shared)
+
+This is not the production site. Clicking the above title link will take you to the production site.
+
 
 privilegedinsider@gmail.com
-
 1Administrator$
 
 1) Copy your login information provided above.
