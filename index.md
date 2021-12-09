@@ -10,7 +10,9 @@ privilegedinsider@gmail.com
 
 1) Copy your login information provided above.
 2) Follow the link to Enable Your Community.
-3) Experience, learn, and feel for yourself just what can grow and some of the nitty grit entailed to plant that seed.
+3) Experience, learn, and feel for yourself \n
+   just what can grow and some of the nitty \n
+   grit entailed to plant that seed.
 
 [Empowering You to Enable Your Community](http://margaretbock.bamboohr.com)
 ```
