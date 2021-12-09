@@ -15,7 +15,7 @@ privilegedinsider@gmail.com
    grit entailed to plant that seed.
 ```
 
-[Empowering You to Enable Your Community](http://margaretbock.bamboohr.com)
+## [Click Here to Enable Your Community](http://margaretbock.bamboohr.com)
 
 ### Support or Contact
 
